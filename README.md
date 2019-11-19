@@ -1,4 +1,4 @@
-# RSJ108
+How to Make a Buisnesscard on Illustratror 
 An Instruction Challenge for JOUR 108  
 
 Reynolds School of Journalism  
